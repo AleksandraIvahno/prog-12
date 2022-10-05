@@ -1,1 +1,1 @@
-Mans pirpais gits projekts
+Mans pirmais gits projekts 2022 gada
